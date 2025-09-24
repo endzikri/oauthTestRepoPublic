@@ -1,0 +1,1 @@
+sve pticice iz gore
